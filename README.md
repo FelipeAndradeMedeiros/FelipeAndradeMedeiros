@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de FelipeAndradeMedeiros 😁
+## Bem-vindo(a) ao perfil de FelipeAndradeMedeiros 
 
  <div>
    <a href="https://github.com/FelipeAndradeMedeiros">
